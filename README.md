@@ -14,7 +14,7 @@
 <h3>Things to Consider</h3>
 <ul>
   <li>Don't call me "girl" or any simmilar. As a trans person, it makes me uncomfortable.</li>
-  <li>I <i>may</i> be non-verbal sometimes, though rarely. I'll probably use a pony that doesn't have "C+H."</li>
+  <li>I <i>may</i> be non-verbal sometimes, though rarely. I'll put my status as "Do Not Disturb."</li>
   <li>You can always interact with me. If I'm away or I didn't see the message, whisper to me.</li>
   <li>All my fandoms are listed in my <a href="https://0sonicenjoyer0.straw.page/">straw.page</a>!</li>
 </ul>

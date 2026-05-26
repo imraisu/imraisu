@@ -31,3 +31,4 @@
 <p>I'm fine that you don't like the ship, but don't harrass me for liking it.</p>
 <p>I also ship Whispangle, Knuxuge and Vectilla, so I won't use these in other ships (Shadonic included).</p>
 <p>I like/don't mind: Metamy, Surgamy, Blazamy, SIlvaze, Espilver.</p>
+<p>I don't mind other ships!</p>

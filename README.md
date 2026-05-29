@@ -23,7 +23,7 @@
 <p>There are some ponies I'll use in specific situation:</p>
 <ul>
   <li>Artist Sonic: I'm drawing or doing any artistic activity.</li>
-  <li>Sweet Dreams: I left PonyTown to go to sleep. If I left without putting this pony means I didn't go directly to sleep.</li>
+  <li>Sleepy Sonic: I left PonyTown to go to sleep. If I left without putting this pony means I didn't go directly to sleep.</li>
 </ul>
 
 <h3>Ships</h3>

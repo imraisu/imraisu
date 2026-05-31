@@ -25,6 +25,7 @@
 <ul>
   <li>Artist Sonic: I'm drawing or doing any artistic activity.</li>
   <li>Sleepy Sonic: I left PonyTown to go to sleep. If I left without putting this pony means I didn't go directly to sleep.</li>
+  <li>McDonald's Worker Sonic: I'm AFK for eating.</li>
 </ul>
 
 <h3>Ships</h3>

@@ -15,9 +15,9 @@
 <ul>
   <li>Don't call me "girl" or any simmilar. As a trans person, it makes me uncomfortable.</li>
   <li>I <i>may</i> be non-verbal sometimes, though rarely. I'll put my status as "Do Not Disturb."</li>
-  <li>Interacting and cuddling is encouraged. If I'm away or I didn't see the message, if u sent me one, whisper to me.</li>
+  <li>Interacting and cuddling is encouraged. If I'm away or I didn't see the message, if you sent me one, whisper to me.</li>
   <li>Please don't kiss me or do the shake head with eyes closed emote to rub. You can do kiss and rub if standing up. Just don't do it unless you are my partner, or maybe a close friend. I can get uncomfortable.</li>
-  <li>I don't mean many things I say. I'm just trying to be funny, most times failing at it. Please let me know if u get offended.</li>
+  <li>I don't mean many things I say. I'm just trying to be funny, most times failing at it. Please let me know if you get offended.</li>
   <li>All my fandoms are listed in my <a href="https://sonicenjoyer0.straw.page/">straw.page</a>!</li>
 </ul>
 

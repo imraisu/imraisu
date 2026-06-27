@@ -1,16 +1,23 @@
+<img src="https://media.tenor.com/enihTZnEU9MAAAAC/sonic-fnf.gif" width=200 />
 <h1>About me!</h1>
 
-<h2>Index</h2>
+<h2><img src= "https://i.pinimg.com/originals/ca/59/c7/ca59c7300ea299fc9f429da8e7924e5c.gif" width=80 />Index</h2>
+<h6><i>This is just so you know what I will talk about. Ignore that the Shadow is unnaligned. I couldn't fix it.</i></h6>
 <ol>
-  <li>How to Call me?</li>
+  <li>Name and Pronouns</li>
   <li>Things to Consider</li>
   <li>Pony Guide</li>
   <li>Ships</li>
 </ol>
 
-<h3>How to Call me?</h3>
+<p>----------------------------------------------------------------------------------------------------------------------------------------</p>
+<img src="https://media.tenor.com/kkLWj0qg5EQAAAAM/sonic-the-hedgehog-sega.gif" width=100 />
+<h3>Name and Pronouns</h3>
 <p>Raisu is fine, but you can also call me Lou, Sonic or Nicky. Don't call me "Rai" unless we are close friends.</p>
+<p>Regards my pronouns, either can be he/him or they/them. Not both. <ins>Do not use both.</ins> If you read this, don't use the pronouns of my pony. Example: I'm using an Amy pony, don't use "she/her."</p>
 
+<p>----------------------------------------------------------------------------------------------------------------------------------------</p>
+<img src="https://media.tenor.com/GCzJtc69wB4AAAAj/think-sonic-the-hedgehog.gif" width=100 />
 <h3>Things to Consider</h3>
 <ul>
   <li>Don't call me "girl" or any simmilar. As a trans person, it makes me uncomfortable.</li>
@@ -18,18 +25,22 @@
   <li>Interacting and cuddling is encouraged. If I'm away or I didn't see the message, if you sent me one, whisper to me.</li>
   <li>Please don't kiss me or do the shake head with eyes closed emote to rub. You can do kiss and rub if standing up. Just don't do it unless you are my partner, or maybe a close friend. I can get uncomfortable.</li>
   <li>I don't mean many things I say. I'm just trying to be funny, most times failing at it. Please let me know if you get offended.</li>
-  <li>All my fandoms are listed in my <a href="https://sonicenjoyer0.straw.page/">straw.page</a>!</li>
+  <li>All my fandoms + more info is listed in my <a href="https://sonicenjoyer0.straw.page/">straw.page</a>!</li>
 </ul>
 
+<p>----------------------------------------------------------------------------------------------------------------------------------------</p>
+<img src="https://media.tenor.com/vU2Jp1w668gAAAAC/sonic-infinity.gif" width=100 />
 <h3>Pony Guide</h3>
 <p>There are some ponies I'll use in specific situation:</p>
 <ul>
   <li>Artist Sonic: I'm drawing or doing any artistic activity.</li>
   <li>Sleepy Sonic: I left PonyTown to go to sleep. If I left without putting this pony means I didn't go directly to sleep.</li>
   <li>McDonald's Worker Sonic: I'm AFK for eating.</li>
-  <li>(AFK/Offtab/Offline) Sonic: I'm busy. Whisper to me.</li>
+  <li>(AFK/Offtab) Sonic: I'm busy or not connected. Whisper to me.</li>
 </ul>
 
+<p>----------------------------------------------------------------------------------------------------------------------------------------</p>
+<img src="https://media.tenor.com/Hwb8Fv54smUAAAAM/sonadow.gif" width=100 />
 <h3>Ships</h3>
 <p>Be aware I ship Shadonic. (It's like Sonadow but names inverted. I don't want to explain this and have problems.)</p>
 <p>I'm fine that you don't like the ship, but don't harrass me for liking it.</p>

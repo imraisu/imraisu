@@ -40,7 +40,7 @@
 </ul>
 
 <p>----------------------------------------------------------------------------------------------------------------------------------------</p>
-<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQ5_aBSmY8aL9hAqxSlh0tA7HP17eLgpkb3VzOxO7eAdQ&s=10" width=100 />
+<img src="https://media.tenor.com/VswaV-DuDfsAAAAd/sonic-cd-sonic-the-hedgehog.gif" width=100 />
 <h3>Pony Town Zones and servers!</h3>
 <p>I'm mostly in Safe Server #1, but I may sometimes switch to Spanish/Portuguese Safe Server. I rarely, and only, go to Safe Server #2 for gift hunting. In both Safe Server #1 and Spanish/Portuguese Safe Server I'm only in Sonic Zone, so if you see me somewhere else, or either my friends went there or I'm clover/gift hunting.</p>
 

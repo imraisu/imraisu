@@ -2,7 +2,7 @@
 <h1>About me!</h1>
 
 <h2><img src= "https://i.pinimg.com/originals/ca/59/c7/ca59c7300ea299fc9f429da8e7924e5c.gif" width=80 />Index</h2>
-<h6><i>This is just so you know what I will talk about. Ignore that the Shadow is unnaligned. I couldn't fix it.</i></h6>
+<h6><i>This is just so you know what I will talk about. Ignore that the Shadow is unnaligned. I couldn't fix it. Also, this GitHub is only for Pony Town!</i></h6>
 <ol>
   <li>Name and Pronouns</li>
   <li>Things to Consider</li>
@@ -38,6 +38,11 @@
   <li>McDonald's Worker Sonic: I'm AFK for eating.</li>
   <li>(AFK/Offtab) Sonic: I'm busy or not connected. Whisper to me. I may not reply, though.</li>
 </ul>
+
+<p>----------------------------------------------------------------------------------------------------------------------------------------</p>
+<img src="https://64.media.tumblr.com/b828254016c3590f7feacac6b70557be/c4178457c5b338da-2c/s1280x1920/d117ed1da5d5165b20c119b42aa4f5bb817d7b46.gifv" width=100 />
+<h3>Pony Town Zones and servers!</h3>
+<p>I'm mostly in Safe Server #1, but I may sometimes switch to Spanish/Portuguese Safe Server. I rarely, and only, go to Safe Server #2 for gift hunting. In both Safe Server #1 and Spanish/Portuguese Safe Server I'm only in Sonic Zone, so if you see me somewhere else, or either my friends went there or I'm clover/gift hunting.</p>
 
 <p>----------------------------------------------------------------------------------------------------------------------------------------</p>
 <img src="https://media.tenor.com/Hwb8Fv54smUAAAAM/sonadow.gif" width=100 />

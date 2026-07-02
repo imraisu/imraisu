@@ -32,7 +32,7 @@
 <img src="https://media.tenor.com/vU2Jp1w668gAAAAC/sonic-infinity.gif" width=100 />
 <h3>Pony Guide</h3>
 <p>There are some ponies I'll use in specific situation:</p>
-<h6><i>High Sonic kin btw!</i></h6>
+<h6><i>High Sonic kin by the way!</i></h6>
 <ul>
   <li>Artist Sonic: I'm drawing or doing any artistic activity.</li>
   <li>Sleepy Sonic: I left PonyTown to go to sleep. If I left without putting this pony means I didn't go directly to sleep.</li>

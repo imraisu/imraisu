@@ -14,7 +14,7 @@
 <img src="https://media.tenor.com/kkLWj0qg5EQAAAAM/sonic-the-hedgehog-sega.gif" width=100 />
 <h3>Name and Pronouns</h3>
 <p>Raisu is fine, but you can also call me Lou, Sonic or Nicky. Don't call me "Rai" unless we are close friends.</p>
-<p>Regards my pronouns, either can be he/him or they/them. Not both. <ins>Do not use both.</ins> If you read this, don't use the pronouns of my pony. Example: I'm using an Amy pony, don't use "she/her."</p>
+<p>Regards my pronouns, either can be he/him or they/them. Not both. <ins>Do not use both.</ins> I'm going to correct you if you use the pronouns I'm not comfortable with. If you read this, don't use the pronouns of my pony. Example: I'm using an Amy pony, don't use "she/her."</p>
 
 <p>----------------------------------------------------------------------------------------------------------------------------------------</p>
 <img src="https://media.tenor.com/GCzJtc69wB4AAAAj/think-sonic-the-hedgehog.gif" width=100 />
@@ -37,7 +37,7 @@
   <li>Artist Sonic: I'm drawing or doing any artistic activity.</li>
   <li>Sleepy Sonic: I left PonyTown to go to sleep. If I left without putting this pony means I didn't go directly to sleep.</li>
   <li>McDonald's Worker Sonic: I'm AFK for eating.</li>
-  <li>(AFK/Offtab) Sonic: I'm busy or not connected. Whisper to me. I may not reply, though.</li>
+  <li>I need to redo it! -> (AFK/Offtab) Sonic: I'm busy or not connected. Whisper to me. I may not reply, though.</li>
 </ul>
 
 <p>----------------------------------------------------------------------------------------------------------------------------------------</p>

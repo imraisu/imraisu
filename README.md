@@ -8,6 +8,7 @@
   <li>Things to Consider</li>
   <li>Pony Guide</li>
   <li>Ships</li>
+  <li>Do Not Interact</li>
 </ol>
 
 <p>----------------------------------------------------------------------------------------------------------------------------------------</p>
@@ -53,3 +54,8 @@
 <p>I also ship Whispangle, Knuxuge and Vectilla, so I won't use these in other ships (Shadonic included).</p>
 <p>I like/don't mind: Metamy, Surgamy, Blazamy, SIlvaze, Espilver.</p>
 <p>I don't mind other ships!</p>
+
+<p>----------------------------------------------------------------------------------------------------------------------------------------</p>
+<img src="" with=100 />
+<h3>Do Not Interact</h3>
+<p>Basic Do Not Interact.</p>

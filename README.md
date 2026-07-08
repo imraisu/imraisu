@@ -51,7 +51,7 @@
 <h3>Ships</h3>
 <p>Be aware I ship Shadonic. (It's like Sonadow but names inverted. I don't want to explain this and have problems.)</p>
 <p>I'm fine that you don't like the ship, but don't harrass me for liking it.</p>
-<p>I also ship Whispangle, Knuxuge and Vectilla, so I won't use these in other ships (Shadonic included).</p>
+<p>I also ship Whispangle, Knuxuge and Vectilla, so I won't use these in other ships (Shadonic included). I can get uncomfortable and be more reserved, but it's not I'll hate you or not be your friend if so.</p>
 <p>I like/don't mind: Metamy, Surgamy, Blazamy, SIlvaze, Espilver.</p>
 <p>I don't mind other ships!</p>
 

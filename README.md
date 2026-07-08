@@ -56,6 +56,6 @@
 <p>I don't mind other ships!</p>
 
 <p>----------------------------------------------------------------------------------------------------------------------------------------</p>
-<img src="" with=100 />
+<img src="https://media.tenor.com/rgLW5khrYhsAAAAj/sonic-no-n.gif" width=100 />
 <h3>Do Not Interact</h3>
 <p>Basic Do Not Interact.</p>

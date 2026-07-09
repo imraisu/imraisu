@@ -60,5 +60,6 @@
 <h3>Do Not Interact</h3>
 <ul>
   <li>People who are anti LGBTQ+.</li>
+  <li>Racist people.</li>
   <li>If you ship Shadaria, Surge x Kit, Sontails or you are friends with someone who ships it.</li>
 </ul>

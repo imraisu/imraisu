@@ -59,6 +59,7 @@
 <img src="https://media.tenor.com/rgLW5khrYhsAAAAj/sonic-no-n.gif" width=100 />
 <h3>Do Not Interact</h3>
 <ul>
+  <li>Basic do not interact.</li>
   <li>People who are anti LGBTQ+.</li>
   <li>Racist people.</li>
   <li>If you ship Shadaria, Surge x Kit, Sontails or you are friends with someone who ships it.</li>

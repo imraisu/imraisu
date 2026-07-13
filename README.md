@@ -7,6 +7,7 @@
   <li>Name and Pronouns</li>
   <li>Things to Consider</li>
   <li>Pony Guide</li>
+  <li>Pony Town Zones and servers!</li>
   <li>Ships</li>
   <li>Do Not Interact</li>
 </ol>

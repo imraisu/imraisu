@@ -28,9 +28,9 @@
   <li>I don't mean many things I say. I'm just trying to be funny, most times failing at it. Please let me know if you get offended.</li>
   <li>I kin Sonic and Nicky and I yumeship with Shadow, although I don't mind people who kin them or yumeship. It's a fictional character.</li>
     <ul>
-      <li>I also yumeship Sonic, Mephiles, Metal, Infinite and Surge. (I mean sona x canon just in case 😭) Shadow also goes in this list. </li>
-      <li>Some kins I also have: Nine and Tails, Silver, Tangle, WHhisper. This are smaller kins.</li>
-      <li>Comfort characters (relatioship with my sona :D). Not shipping any: Amy (mom), Knux (dad), Espio (dad), Charmy (lil bro), and Soleil (huggable fren.)</li>
+      <li>I also yumeship Sonic, Mephiles, Metal, Scourge, Infinite and Surge. (I mean sona x canon just in case 😭) Shadow also goes in this list. </li>
+      <li>Some kins I also have: Nine and Tails, Silver, Tangle, Whisper. These are smaller kins.</li>
+      <li>Comfort characters (relatioship with my sona :D). Not shipping any: Amy (mom), Knux (dad), Espio (dad), Charmy (lil bro), Jules (dad and fren, maybe kin) and Soleil (huggable fren.)</li>
     </ul>
   <li>All my fandoms + more info is listed in my <a href="https://sonicenjoyer0.straw.page/">straw.page</a>!</li>
 </ul>
@@ -58,7 +58,7 @@
 <p>Be aware I ship Shadonic. (It's like Sonadow but names inverted. I don't want to explain this and have problems.)</p>
 <p>I'm fine that you don't like the ship, but don't harrass me for liking it.</p>
 <p>I also ship Whispangle, Knuxuge and Vectilla, so I won't use these in other ships (Shadonic included). I can get uncomfortable and be more reserved, but it's not I'll hate you or not be your friend if so.</p>
-<p>I like/don't mind: Metamy, Surgamy, Blazamy, SIlvaze, Espilver.</p>
+<p>I like/don't mind: Metamy, Surgamy, Blazamy, Silvaze, Espilver.</p>
 <p>I don't mind other ships!</p>
 
 <p>----------------------------------------------------------------------------------------------------------------------------------------</p>

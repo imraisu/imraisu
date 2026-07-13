@@ -28,7 +28,9 @@
   <li>I don't mean many things I say. I'm just trying to be funny, most times failing at it. Please let me know if you get offended.</li>
   <li>I kin Sonic and Nicky and I yumeship with Shadow, although I don't mind people who kin them or yumeship. It's a fictional character.</li>
     <ul>
-      <li>I also yumeship Sonic, Mephiles, Metal, Infinite and Surge.</li>
+      <li>I also yumeship Sonic, Mephiles, Metal, Infinite and Surge. (I mean sona x canon just in case 😭) Shadow also goes in this list. </li>
+      <li>Some kins I also have: Nine and Tails, Silver, Tangle, WHhisper. This are smaller kins.</li>
+      <li>Comfort characters (relatioship with my sona :D). Not shipping any: Amy (mom), Knux (dad), Espio (dad), Charmy (lil bro), and Soleil (huggable fren.)</li>
     </ul>
   <li>All my fandoms + more info is listed in my <a href="https://sonicenjoyer0.straw.page/">straw.page</a>!</li>
 </ul>
@@ -66,5 +68,6 @@
   <li>Basic do not interact.</li>
   <li>People who are anti LGBTQ+.</li>
   <li>Racist people.</li>
+  <li>If you support Sark.</li>
   <li>If you ship Shadaria, Surge x Kit, Sontails or you are friends with someone who ships it.</li>
 </ul>

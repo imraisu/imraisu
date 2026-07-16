@@ -22,6 +22,7 @@
 <img src="https://media.tenor.com/GCzJtc69wB4AAAAj/think-sonic-the-hedgehog.gif" width=100 />
 <h3>Things to Consider</h3>
 <ul>
+  <li>I'm really obsessed with the Sonic franchise.</li>
   <li>Don't call me "girl" or any simmilar. As a trans person, it makes me uncomfortable.</li>
   <li>I <i>may</i> be non-verbal sometimes, though rarely. I'll put my status as "Do Not Disturb."</li>
   <li>Interacting and cuddling is encouraged. If I'm away or I didn't see the message, if you sent me one, whisper to me.</li>

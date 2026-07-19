@@ -28,6 +28,7 @@
   <li>Interacting and cuddling is encouraged. If I'm away or I didn't see the message, if you sent me one, whisper to me.</li>
   <li>Please don't kiss me or do the shake head with eyes closed emote to rub. You can do kiss and rub if standing up. Just don't do it unless you are my partner, or maybe a close friend. I can get uncomfortable.</li>
   <li>I don't mean many things I say. I'm just trying to be funny, most times failing at it. Please let me know if you get offended.</li>
+  <li>I may have some disorders. Just be aware.</li>
   <li>I kin Sonic and Nicky and I yumeship with Shadow, although I don't mind people who kin them or yumeship. It's a fictional character.</li>
     <ul>
       <li>I also yumeship Sonic, Mephiles, Metal, Scourge, Infinite and Surge. (I mean sona x canon just in case 😭) Shadow also goes in this list. </li>
@@ -59,7 +60,7 @@
 <h3>Ships</h3>
 <p>Be aware I ship Shadonic. (It's like Sonadow but names inverted. I don't want to explain this and have problems.)</p>
 <p>I'm fine that you don't like the ship, but don't harrass me for liking it.</p>
-<p>I also ship Whispangle, Knuxuge and Vectilla, so I won't use these in other ships (Shadonic included). I can get uncomfortable and be more reserved, but it's not I'll hate you or not be your friend if so.</p>
+<p>I also ship Whispangle, Knuxouge and Vectilla, so I won't use these in other ships (Shadonic included). I can get uncomfortable and be more reserved, but it's not I'll hate you or not be your friend if so.</p>
 <p>I like/don't mind: Metamy, Surgamy, Blazamy, Silvaze, Espilver.</p>
 <p>I don't mind other ships!</p>
 

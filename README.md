@@ -25,7 +25,7 @@
   <li>I'm really obsessed with the Sonic franchise.</li>
   <li>Don't call me "girl" or any simmilar. As a trans person, it makes me uncomfortable.</li>
   <li>I <i>may</i> be non-verbal sometimes, though rarely. I'll put my status as "Do Not Disturb."</li>
-  <li>Interacting and cuddling is encouraged. If I'm away or I didn't see the message, if you sent me one, whisper to me.</li>
+  <li>Interacting and cuddling is encouraged. I really like people cuddling with me. If I'm away or I didn't see the message, if you sent me one, whisper to me.</li>
   <li>Please don't kiss me or do the shake head with eyes closed emote to rub. You can do kiss and rub if standing up. Just don't do it unless you are my partner, or maybe a close friend. I can get uncomfortable.</li>
   <li>I don't mean many things I say. I'm just trying to be funny, most times failing at it. Please let me know if you get offended.</li>
   <li>I may have some disorders. Just be aware.</li>

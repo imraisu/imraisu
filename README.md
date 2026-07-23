@@ -29,6 +29,7 @@
   <li>Please don't kiss me or do the shake head with eyes closed emote to rub. You can do kiss and rub if standing up. Just don't do it unless you are my partner, or maybe a close friend. I can get uncomfortable.</li>
   <li>I don't mean many things I say. I'm just trying to be funny, most times failing at it. Please let me know if you get offended.</li>
   <li>I may have some disorders. Just be aware.</li>
+  <li>I may sometimes isolate myself because I feel overwhelmed, uncomfy or there's too much people.</li>
   <li>I kin Sonic and Nicky and I yumeship/ficto (IDK OK) with Shadow, although I don't mind people who kin them or yumeship/ficto. It's a fictional character.</li>
     <ul>
       <li>I also yumeship/focto (AGAIN IDK THE TERM) Sonic, Mephiles, Metal, Scourge, Infinite and Surge. (I mean sona x canon just in case 😭) Shadow also goes in this list. </li>

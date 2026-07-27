@@ -32,7 +32,7 @@
   <li>I may sometimes isolate myself because I feel overwhelmed, uncomfy or there's too much people.</li>
   <li>I kin Sonic and Nicky and I yumeship/ficto (IDK OK) with Shadow, although I don't mind people who kin them or yumeship/ficto. It's a fictional character.</li>
     <ul>
-      <li>I also yumeship/focto (AGAIN IDK THE TERM) Sonic, Mephiles, Metal, Scourge, Infinite and Surge. (I mean sona x canon just in case 😭) Shadow also goes in this list. </li>
+      <li>I also yumeship/ficto (AGAIN IDK THE TERM) Sonic, Mephiles, Metal, Scourge, Infinite and Surge. (I mean sona x canon just in case 😭) Shadow also goes in this list. </li>
       <li>Some kins I also have: Nine and Tails, Silver, Tangle, Whisper. These are smaller kins.</li>
       <li>Comfort characters (relatioship with my sona :D). Not shipping any: Amy (mom), Knux (dad), Espio (dad), Charmy (lil bro), Jules (dad and fren, maybe kin) and Soleil (huggable fren.)</li>
     </ul>

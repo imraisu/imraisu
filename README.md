@@ -31,7 +31,7 @@
   <li>I may have some disorders. Just be aware.</li>
   <li>I may sometimes isolate myself because I feel overwhelmed, uncomfy or there's too much people.</li>
   <li>Please always interact with caution or extreme caution. I'm somedays in a better mood than other. I may sometimes get angry or sad really quiclly.</li>
-  <li>I kin Sonic and Nicky and I yumeship/ficto (IDK OK) with Shadow, although I don't mind people who kin them or yumeship/ficto. It's a fictional character.</li>
+  <li>I kin Sonic and Nicky and I yumeship/ficto (IDK OK) with Shadow, although I don't mind people who kin them or yumeship/ficto. It's a fictional character. Also Shadonic is my comfort ship.</li>
     <ul>
       <li>I also yumeship/ficto (AGAIN IDK THE TERM) Sonic, Mephiles, Metal, Scourge, Infinite and Surge. (I mean sona x canon just in case 😭) Shadow also goes in this list. </li>
       <li>Some kins I also have: Nine and Tails, Silver, Tangle, Whisper. These are smaller kins.</li>

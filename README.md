@@ -1,3 +1,4 @@
+<p>Read the <u><a href="https://docs.google.com/document/d/1hm5NeZ0_nCqxfVzyX79jHkSQN5oNCit-s40ZqiCydGA/edit?usp=sharing">docs</a></u> I made.</p>
 <img src="https://media.tenor.com/enihTZnEU9MAAAAC/sonic-fnf.gif" width=200 />
 <h1>About me!</h1>
 

@@ -15,7 +15,7 @@
 </ol>
 
 <p>----------------------------------------------------------------------------------------------------------------------------------------</p>
-<h2>Important!</h2>
+<h3>Important!</h3>
 <h6>Please read before interacting. Small warning: This is kind of a vent.</h6>
 <p>I beg you all interact with extreme caution, since I may have depression. I also have attatchment issues and people unfriending me makes me worst. For some stupid reason I also care about people blocking me. I really don't like being excluded. Sorry to all if I say bullshit. I'm trying not to die.</p>
 

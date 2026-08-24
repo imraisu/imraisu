@@ -1,10 +1,11 @@
 <p>Read the <u><a href="https://docs.google.com/document/d/1hm5NeZ0_nCqxfVzyX79jHkSQN5oNCit-s40ZqiCydGA/edit?usp=sharing">docs</a></u> I made.</p>
 <img src="https://media.tenor.com/enihTZnEU9MAAAAC/sonic-fnf.gif" width=200 />
-<h1>About me!</h1>
+<h1>Welcome!</h1>
 
-<h2><img src= "https://i.pinimg.com/originals/ca/59/c7/ca59c7300ea299fc9f429da8e7924e5c.gif" width=80 />Index</h2>
+<h3><img src= "https://i.pinimg.com/originals/ca/59/c7/ca59c7300ea299fc9f429da8e7924e5c.gif" width=80 />Index</h3>
 <h6><i>This is just so you know what I will talk about. Ignore that the Shadow is unnaligned. I couldn't fix it. Also, this GitHub is only for Pony Town!</i></h6>
 <ol>
+  <li>Important</li>
   <li>Name and Pronouns</li>
   <li>Things to Consider</li>
   <li>Pony Guide</li>
@@ -12,6 +13,11 @@
   <li>Ships</li>
   <li>Do Not Interact</li>
 </ol>
+
+<p>----------------------------------------------------------------------------------------------------------------------------------------</p>
+<h2>Important!</h2>
+<h6>Please read before interacting. Small warning: This is kind of a vent.</h6>
+<p>I beg you all interact with extreme caution, since I may have depression. I also have attatchment issues and people unfriending me makes me worst. For some stupid reason I also care about people blocking me. I really don't like being excluded. Sorry to all if I say bullshit. I'm trying not to die.</p>
 
 <p>----------------------------------------------------------------------------------------------------------------------------------------</p>
 <img src="https://media.tenor.com/kkLWj0qg5EQAAAAM/sonic-the-hedgehog-sega.gif" width=100 />
@@ -31,7 +37,7 @@
   <li>I don't mean many things I say. I'm just trying to be funny, most times failing at it. Please let me know if you get offended.</li>
   <li>I may have some disorders. Just be aware.</li>
   <li>I may sometimes isolate myself because I feel overwhelmed, uncomfy or there's too much people.</li>
-  <li>Please always interact with caution or extreme caution. I'm somedays in a better mood than other. I may sometimes get angry or sad really quiclly.</li>
+  <li>Please always interact with caution or extreme caution. I'm somedays in a better mood than other. I may sometimes get angry or sad really quickly.</li>
   <li>I kin Sonic and Nicky and I yumeship/ficto (IDK OK) with Shadow, although I don't mind people who kin them or yumeship/ficto. It's a fictional character. Also Shadonic is my comfort ship.</li>
     <ul>
       <li>I also yumeship/ficto (AGAIN IDK THE TERM) Sonic, Mephiles, Metal, Scourge, Infinite and Surge. (I mean sona x canon just in case 😭) Shadow also goes in this list. </li>

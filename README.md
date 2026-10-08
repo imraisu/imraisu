@@ -3,8 +3,8 @@
 Just basic "do not interact" criteria.
 <h2>IWEC</h2>
 <ui>
-    <li>Other Shadow ships that is not Sonadow/Shadonic.</li>
-    <li>Femenine Shadows (if you are not my friend.)</li>
+  <li>Other Shadow ships that is not Sonadow/Shadonic.</li>
+  <li>Femenine Shadows (if you are not my friend.)</li>
 </ui>
 <h2>IWC</h2>
 <ul>

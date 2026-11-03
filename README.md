@@ -1,21 +1,9 @@
-I love my friends.
-
-I hope they kill me.
-
-...
-
-Help me.
+Maybe I'm just crazy?
+Yeah, I definetely am!
+Who can help a crazy and lonely man with a knife? No one!
+Absolutely no one!
 
 ...
 
-I want to dissapear.
-
-...
-
-I could make it myself.
-
-...
-
-Yeah.
-
-I can.
+I will end this myself. I hope you like it.
+Bye.

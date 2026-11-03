@@ -8,6 +8,6 @@ Absolutely no one!
 
 ...
 
-I will end this myself. I hope you like it.
+I will end myself. I hope you like it.
 
 Bye.

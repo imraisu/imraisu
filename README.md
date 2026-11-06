@@ -1,5 +1,5 @@
-If I leave this world there will be no more people I can hurt.
+I might get depressed randomly.
 
----
+Tonetags are recommended
 
-Dealing with anxiety and god knows what else.
+Please be very direct and use short and simple phrases when talking to me. I have trouble reading long texts.

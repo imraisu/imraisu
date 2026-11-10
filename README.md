@@ -2,7 +2,7 @@ Suicide.
 
 ---
 
-I might get depressed randomly.
+I might get depressed randomly as I might have, highely likely, depression. I'm not joking.
 
 I'm not sure if I have any disorders.
 

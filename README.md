@@ -1,4 +1,4 @@
-Why does everyone hate me..?
+Suicide.
 
 ---
 

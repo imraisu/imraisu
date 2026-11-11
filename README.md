@@ -1,5 +1,7 @@
 Suicide.
 
+The voices in my head won't stop telling me to die.
+
 ---
 
 I might get depressed randomly as I might have, highely likely, depression. I'm not joking.

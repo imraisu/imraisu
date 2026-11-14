@@ -1,6 +1,4 @@
-Suicide.
-
-The voices in my head won't stop telling me to die.
+I doubt that after killing myself people will care, but I might do it anyways.
 
 ---
 

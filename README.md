@@ -1,7 +1,3 @@
-Liar, liar, LIAR! You damn liar! Fuck off, fuck off, fuck off!
-
----
-
 I doubt that after killing myself people will care, but I might do it anyways.
 
 ---

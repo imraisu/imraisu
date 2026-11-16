@@ -1,4 +1,4 @@
-Liar, liar, LIAR! You damn liar! Fuck off, fuck off, fuck off. 
+Liar, liar, LIAR! You damn liar! Fuck off, fuck off, fuck off!
 
 ---
 

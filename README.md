@@ -1,3 +1,7 @@
+I cry because I miss people...
+
+---
+
 I doubt that after killing myself people will care, but I might do it anyways.
 
 ---
